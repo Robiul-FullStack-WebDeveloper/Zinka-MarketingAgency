@@ -1,1 +1,1 @@
-# Zinka-MarketingAgency
+# Zinka-Startup-IT & SEO
